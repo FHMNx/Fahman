@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **fhmnx35888@gmail.com**
 
-- ⚡ Fun fact **I am funny**
+- ⚡ Fun fact **I love build new stuffs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
